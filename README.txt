@@ -1,1 +1,8 @@
-Hi. This is Aika's repository since di pwede si oppa HAHAHAHA
+Pansinin mo ako.
+Basahin mo ako.
+Aalamin mo ako.
+Tapos magsasawa ka.
+At lilisan din
+Tulad ng iba.
+
+HAHAHHAHAHAHAHAHAHA
